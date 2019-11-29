@@ -1,1 +1,1 @@
-# sport-pit.github.io
+# https://maxximl.github.io/sport-pit.github.io/
